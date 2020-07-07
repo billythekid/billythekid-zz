@@ -1,4 +1,4 @@
-### Hi there 👋
+![dxn6fRlTIShoeBr69N](https://user-images.githubusercontent.com/330170/86783878-c0a64a80-c058-11ea-919c-3e636a657f5a.gif)
 
 <!--
 **billythekid/billythekid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
